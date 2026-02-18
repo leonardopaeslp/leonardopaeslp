@@ -1,4 +1,4 @@
-💬 Olá, Leonardo Paes, prazer! Atualmente Desenvolvedor Front-End com Angular<br>
+💬 Olá, Leonardo Paes, prazer! Atualmente Desenvolvedor Desenvolvedor Full Stack Jr<br>
 
 
 ## 🌐 Socials:
